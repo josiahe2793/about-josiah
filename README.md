@@ -1,1 +1,1 @@
-Hello,my name is Josiah and I'm currently a Junior at HSTAT. 
+Hello,my name is Josiah and I'm currently a junior at HSTAT. 
