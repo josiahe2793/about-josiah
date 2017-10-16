@@ -9,13 +9,13 @@
  It only makes you stronger.   
 ---
 3. My goals:
- * Go to a business concentrated college, study fiance
- * Enter the finace industry and work at a large bank 
+ * Go to a business concentrated college, study finance
+ * Enter the finance industry and work at a large bank 
  * Go back to school to get my MBA 
  * Work as a high level Executive
  * Gain support for my Presidential campaign 
  * Become President 
- * After Presidency write books  
+ * After Presidency write books, make millions
   ---
 [Here is my Google Site where you can see the projects I've done this year](https://sites.google.com/a/hstat.org/josiahe2793sep11/)
 
