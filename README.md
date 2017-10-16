@@ -5,7 +5,7 @@
 * I love chess.   
 * I'm a generally competitive person. I like to **win**.
 ---
-2. I have always believed that to be our best selves we have to compete with one other.
+2. I have always believed that to be our best selves we have to compete with one another.
  It only makes you stronger.   
 ---
 3. My goals:
@@ -19,3 +19,4 @@
   ---
 [Here is my Google Site where you can see the projects I've done this year](https://sites.google.com/a/hstat.org/josiahe2793sep11/)
 
+_VIEWED BY JAYDEN WESTON_
